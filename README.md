@@ -1,1 +1,1 @@
-# pinkclipboard.github.io/clinically-unhinged/
+# pinkclipboard.github.io
